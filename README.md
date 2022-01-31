@@ -1,0 +1,8 @@
+# dutch-chemical-and-viral-warfare
+2002-2022
+
+# burgeroorlig
+https://nl.wikipedia.org/wiki/Burgeroorlog
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
